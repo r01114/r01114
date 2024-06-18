@@ -2,6 +2,7 @@
 ( ˶°ㅁ°) !! im roma/shin ୨୧ 17 he/him ୨୧ rus/eng.
 
 usually on 18+ server ୨୧ c+h is ok!! ୨୧ gamzee makara kinnies dni lol.
+
 </div> 
 
 
@@ -11,4 +12,10 @@ usually on 18+ server ୨୧ c+h is ok!! ୨୧ gamzee makara kinnies dni lol.
 
 <div align="center">
 <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExdzUyZTNtYzczcnRsZHZ6eWE2OGtsZGloNjBkNXV4NndyNTV4YnhvYiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/1zjd0TVQ8t0nm0d97Q/giphy.webp"/>
+</div> 
+
+ 
+<div align="center">
+ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+  idontbite
 </div> 
